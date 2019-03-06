@@ -1,2 +1,1 @@
-# -
-fastcampus Computer Science All-in-One
+E-mail : jewelpash@naver.com
